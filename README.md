@@ -1,1 +1,1 @@
-My Project Portfolio
+This is Rick Joshua's Portfolio
