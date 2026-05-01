@@ -1,1 +1,1 @@
-This is a Collaborative Project
+This is a Collaborative Project by Rick Joshua Ramos and John Mark Camba
